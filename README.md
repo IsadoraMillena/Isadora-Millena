@@ -1,1 +1,1 @@
-# Isadora-Millena
+Meu  nome é Isadora Millena Chagas dos Santos. Sou estudante do terce  ano, tenho 17 anos, nasci dia 07 de Novembro de 2005 e sou jovem aprendiz de Jogos Digitais. Gosto de ler livros, escutar música, assistir séries e viajar. Amo conversar e sorrir, e na maioria das vezes sou uma pessoa descontraída. Estou sempre disponível para novas oport, gosto de ser independente. 
